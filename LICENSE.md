@@ -1,4 +1,4 @@
-#  
+#  custom bridger western Script is the best bridger western Script, featuring undetectable and fly. Safe and powerful for all your needs.
 
 
 
